@@ -1,0 +1,1 @@
+# LabDarbi-Programmaturas-Pamati
